@@ -17,6 +17,6 @@ Sooza and Ozona:
 https://www.dropbox.com/s/x9gi27tnpb8fu20/Visuals.mp4?dl=0
 
 Just running through it:
-https://www.dropbox.com/s/ctpj49lyw5j7z91/Thank%20you%20KRZ%20and%20Catlike.mp4?dl=0
+https://www.dropbox.com/s/0spff0z9sa52gyw/Base%20Profile%2002.26.2018%20-%2018.22.27.12.mp4?dl=0
 
 
